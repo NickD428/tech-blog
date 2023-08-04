@@ -34,4 +34,5 @@
   Check out my other works here! https://github.com/NickD428
   Questions? Contact me here: chargerfan428@aol.com
 
+![techblog](https://github.com/NickD428/tech-blog/assets/126355678/87b48b6f-900b-4592-ac6f-0a810f1c9881)
 
